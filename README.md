@@ -1,1 +1,1 @@
-# NolwaziDludla.github.io
+# nolwazipd.github.io
